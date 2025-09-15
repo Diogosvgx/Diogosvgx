@@ -1,1 +1,1 @@
-• Atualmente inciante em python, indo para o segundo semestre da faculdade e vou tentar colocar aki alguns projetos caso der certo kkkkkkk.
+Em costante aprendizagem. Sigo firme aprendendo e buscando conhecimento em programação, especificadamente Java e Java Script;
